@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MaitreVince
+- 👋 Hi, I’m @MaitreVince - @MaîtreVince @MaitreVincee
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everything
